@@ -5,4 +5,4 @@ https://discord.gg/CtF6nEgff
 
 Site is released !!
 
-RageBet.net
+[RageBet.net](https://ragebet.net)
