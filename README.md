@@ -5,4 +5,6 @@ https://discord.gg/CtF6nEgff
 
 Site is released !!
 
+10 BGL GIVEAWAY HAPPENING RIGHT NOW !~
+
 [RageBet.net](https://ragebet.net)
